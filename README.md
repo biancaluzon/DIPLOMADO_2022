@@ -44,3 +44,11 @@ El comienzo de mi historia
 VIENTOOOOOOOO
 Y AHORA PARA TODA AMÉRICA EL SUPER RITMO DE GRUPO CELESTE
 
+5. Mariana: 
+Viento vuelve hacer como ayer
+Viento vuelve hacer como ayer
+Como aquellos días en que yo vivía
+Junto a mi bohío y la madre mia
+Como aquel entonces tan sólo era un niño
+
+
